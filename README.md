@@ -16,20 +16,21 @@ https://bitsofcode.straw.page/ ︶︶
 ·  annoying bitches / hateful () friends
 · proshippers - darkshippers
 
-- ·  "no" treatment (do not force me, you brat!)
+- ·  forcing treatment (do not force me into anything)
 ·  death threats / death wishes
-· non-con shit (do NOT!!!! pls)
+· non-con shit (do NOT pls)
 ![1000019422](https://github.com/user-attachments/assets/32be0b9d-9d75-47d6-baa5-9284091c0726)
 ## 001 : PLEASE.DO.INTERACT.("!")
 ◟ @◦ ・ ♡ ⁺ print=("simple criteria x2!")
 <img width="2000" height="200" alt="1000016867" src="https://github.com/user-attachments/assets/a438f789-4170-495d-96b7-4a804f7f3458" />
 - ·  roblox arg / webseries + other media fans
-·  yumeshippers (i support!) + kinners (i will draw your stuff)
+·  yumeshippers (i support) + kinners (i will draw your stuff)
 · freakiness overload (not forcing!)
 
 - ·  doubles + other shippers
-·  Seanbecca shippers (NOT JX1SEAN!!! DNI!) and samjake shippers
+·  samjake shippers
 · roblox myth + more fans
+[the ultimate meowser!](https://open.spotify.com/intl-es/track/1tdDgdYqi3v9kCesCLb9GA?si=4336354936b64b62)
 <img width="942" height="143" alt="1000019438" src="https://github.com/user-attachments/assets/3a20e4ec-9512-432e-948e-c20c56a18906" />
 
 ![1000019420](https://github.com/user-attachments/assets/c9287067-88e6-4ef4-b3c6-4bd742029cb5)
