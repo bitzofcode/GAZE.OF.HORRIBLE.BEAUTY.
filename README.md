@@ -27,8 +27,8 @@ https://bitsofcode.straw.page/ ︶︶
 ·  yumeshippers (i support) + kinners (i will draw your stuff)
 · freakiness overload (not forcing!)
 
-- ·  doubles + other shippers
-·  samjake (and jx1sean by maybe) shippers
+- ·  anything no problematic
+·  any type of shippers
 · roblox myth + more fans, and [the ultimate meowser!](https://open.spotify.com/intl-es/track/1tdDgdYqi3v9kCesCLb9GA?si=4336354936b64b62)
 <img width="942" height="143" alt="1000019438" src="https://github.com/user-attachments/assets/3a20e4ec-9512-432e-948e-c20c56a18906" />
 
